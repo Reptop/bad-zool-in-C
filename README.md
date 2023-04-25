@@ -1,6 +1,6 @@
 # bad-zool-in-C
 its really bad
 
-#ur mom
+# ur mom
 
 she bad
